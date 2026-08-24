@@ -1,11 +1,11 @@
-
+<p align="center"><i>cutie hiroya by tingthething</i></p>
 <p align="center">
-  <img src="wip" width="500">
+  <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/hiroyaedit.png" width="500">
 </p>
 
-<b><p align="center">jude / salt</p></b>
-<p align="center"><u>he / any 🍓 16 🍓 filipino</u></p>
-<p align="center">this ho got roaches in her crib</p>
+## <b><p align="center">jude / salt</p></b>
+<p align="center"><u>he / any 16 filipino</u></p>
+<p align="center">this HOE got ROACHES in her CRIB 😭😭😭😭😭😭😭😭😭</p>
 
 
 <div align="center">
@@ -47,7 +47,6 @@
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/danganronpa-danganronpa-mauve.gif" width="200">
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/huekapop-funny.gif" width="200">
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/pugsley-pugsley-agenda.gif" width="200">
-    <img src="" width="200">
   </details>
 </div>
 
