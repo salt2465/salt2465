@@ -11,7 +11,23 @@
   <details>
     <summary><u>gifdump</u></summary
     <br>
-    uhhhh
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/mattdie.gif" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/matt-engarde-ace-attorney.gif" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/adrian2" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/ace-attorney-richard-wellington.gif" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/adrian" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/black-friday-deals-man-richard-wellington.gif" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/kanataslawyer-yuri-kagarin%20(1).gif" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/yuri-yuri-kagarin%20(4).gif" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/yuri-kagarin-sdra2.gif" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/picmix.com_13929921.gif" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/jabber-wonger-jabba.gif" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/lana-skye-ace-attorney.gif" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/jerma-rip-shirt.gif" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/mia-mia-fey.gif" width="200">
+    <img src="" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/gachiakuta-zanka%20(2).gif" width="200">
+    <img src="" width="200">
   </details>
 </div>
 
