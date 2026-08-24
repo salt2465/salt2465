@@ -11,7 +11,7 @@
   <details>
     <summary><u>gifdump</u></summary
     <br>
-    Your centered content goes here. You can add text, images, lists, or code blocks!
+    uhhhh
   </details>
 </div>
 
