@@ -4,7 +4,7 @@
 </p>
 
 ## <b><p align="center">jude / salt</p></b>
-<p align="center"><u>he / any 16 filipino</u></p>
+<p align="center">docks lurker 🍀 c+h</p>
 <p align="center">this HOE got ROACHES in her CRIB 😭😭😭😭😭😭😭😭😭</p>
 
 
