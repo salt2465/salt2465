@@ -4,7 +4,8 @@
 </p>
 
 <b><p align="center">jude / salt</p></b>
-<p align="center">he / any 🍓 16 🍓 🇵🇭/EN</p>
+<p align="center"><u>he / any 🍓 16 🍓 filipino</u></p>
+<p align="center">this ho got roaches in her crib</p>
 
 
 <div align="center">
@@ -16,17 +17,36 @@
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/adrian2" width="200">
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/ace-attorney-richard-wellington.gif" width="200">
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/adrian" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/peko-peko-pekoyama.gif" width="200">
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/black-friday-deals-man-richard-wellington.gif" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/jpg-low-quality.gif" width="200">
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/kanataslawyer-yuri-kagarin%20(1).gif" width="200">
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/yuri-yuri-kagarin%20(4).gif" width="200">
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/yuri-kagarin-sdra2.gif" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/netzach-project-moon.gif" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/kanataslawyer-kokoro-mitsume.gif" width="200">
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/picmix.com_13929921.gif" width="200">
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/jabber-wonger-jabba.gif" width="200">
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/lana-skye-ace-attorney.gif" width="200">
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/jerma-rip-shirt.gif" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/exercise.gif" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/franziska-von-karma-ace-attorney.gif" width="200">
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/mia-mia-fey.gif" width="200">
-    <img src="" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/danganronpa-peko-pekoyama.gif" width="200">
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/gachiakuta-zanka%20(2).gif" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/silly-me-silly-baka-me.gif" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/isekaironpa.gif" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/franziska-von-karma-ace-attorney%20(1).gif" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/rogurt-zane.gif" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/rogurt-rizz-rogurt.gif" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/roblox-rogurt%20(1).gif" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/roblox-rogurt.gif" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/dandy-dandy-world.gif" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/moonflower-dandy.gif" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/kokoro-mitsume-kokoro.gif" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/danganronpa-danganronpa-mauve.gif" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/huekapop-funny.gif" width="200">
+    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/pugsley-pugsley-agenda.gif" width="200">
     <img src="" width="200">
   </details>
 </div>
