@@ -1,4 +1,7 @@
-## Hi there 👋
+
+<p align="center">jude / salt</p>
+
+<p align="center">he / any 🍓 16 🍓 🇵🇭/EN</p>
 
 <!--
 **salt2465/salt2465** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
