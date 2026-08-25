@@ -3,9 +3,16 @@
   <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/hiroyaedit.png" width="500">
 </p>
 
-![](https://komarev.com/ghpvc/?username=salt2465&color=green&label=stalker+counter)
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=salt2465&color=green&label=stalker+counter" alt="Stalker Counter" />
+</p>
 
-## <b><p align="center">jude / salt</p></b>
+<p align="center">
+  <a href="https://git.io/typing-svg">
+    <img src="https://readme-typing-svg.demolab.com?font=Indie+Flower&weight=200&size=40&duration=3000&pause=2000&color=A4F778&width=435&lines=welcome+to+my+profile+bro" alt="Typing SVG" />
+  </a>
+</p>
+<hr>
 <p align="center">docks lurker 🍀 c+h‎ ‎ ‎ ‎ ‎ ‎  <a href="https://salt2465.atabook.org">atabook</a> <a href="https://sugar24.straw.page">strawpage</a></p> 
 <p align="center">this HOE got ROACHES in her CRIB 😭😭😭😭😭😭😭😭😭</p>
 
