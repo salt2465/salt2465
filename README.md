@@ -66,7 +66,26 @@
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/walk-cycle-for-the-main-character-walk.gif" width="200">
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/just-monika-ddlc.gif" width="200">
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/caramelldansen-wellingarde.gif" width="200">
+    <img src="https://media1.tenor.com/m/SWvXg59lsiEAAAAC/teruya-teruya-otori.gif" width="200">
+    <img src="https://media1.tenor.com/m/K99SR8dP50kAAAAd/super-danganronpa-another-2-sdra2.gif" width="200">
+    <img src="https://media1.tenor.com/m/Kvyt0Qzm3mEAAAAC/sdra2-super-danganronpa-another-2.gif" width="200">
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/richard-wellington-phoenix-wright.gif" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/c/cb/Matt_Normal_1.gif/revision/latest?cb=20120729213526" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/8/8c/Matt_Normal_2.gif/revision/latest?cb=20120729213525" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/c/c0/Matt_Thinking_1.gif/revision/latest?cb=20120729213526" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/a/a2/Matt_Thinking_2.gif/revision/latest?cb=20120729213526" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/d/d8/Matt_Dialling_3.gif/revision/latest?cb=20120729213524" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/4/43/Matt_Phone_1.gif/revision/latest?cb=20120729213525" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/1b/Matt_Phone_2.gif/revision/latest?cb=20120729213525" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/a/a5/Matt_Hair_Flip.gif/revision/latest?cb=20120729213525" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/c/ce/Evil_Matt_1.gif/revision/latest?cb=20120729213523" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/3/3e/Evil_Matt_2.gif/revision/latest?cb=20120729213523" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/3/39/Matt_Laughing_1.gif/revision/latest?cb=20120729213525" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/d/d3/Matt_Laughing_2.gif/revision/latest?cb=20120729213525" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/7/78/Matt_Sweating_1.gif/revision/latest?cb=20120729213526" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/6/6f/Matt_Sweating_2.gif/revision/latest?cb=20120729213526" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/6/67/Matt-breaks.gif/revision/latest?cb=20101006010956" width="200">
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/fat-guy-getting-electrocuted.gif" width="200">
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/speed-ishowspeed%20(1).gif" width="200">
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/sdr2-iroha-nijiue.gif" width="200">
@@ -87,7 +106,7 @@
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/paul-dano.gif" width="200">
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/paul-dano-the-riddler.gif" width="200">
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/paul-dano-paul-dano-cupcake.gif" width="200">
-    <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/go-white-boy-go-paul-dano.gif" width="200">
+    <img src="https://media1.tenor.com/m/quMPfc-CDSEAAAAd/speed-ishowspeed.gif" width="200">
   </details>
 </div>
 
