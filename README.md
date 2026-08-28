@@ -65,6 +65,8 @@
     <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
     <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
     <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/3/37/Adrian_Thinking_2.gif/revision/latest?cb=20230325095821" alt="Adrian Andrews" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/1f/Wellington_Sweating_2.gif/revision/latest?cb=20120901121840" alt="Richard Wellington" width="200">
     
   </details>
 </div>
