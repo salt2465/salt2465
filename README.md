@@ -16,10 +16,66 @@
 <p align="center">docks lurker 🍀 c+h‎ ‎ ‎ ‎ ‎ ‎  <a href="https://salt2465.atabook.org">atabook</a> <a href="https://sugar24.straw.page">strawpage</a></p> 
 <p align="center">this HOE got ROACHES in her CRIB 😭😭😭😭😭😭😭😭😭</p>
 
-
+<p align="center">
+  <img src="https://file.garden/ZbUUWhRFzF89fVGT/ptgithub/TIL.gif" width="200">
+</p>
 <div align="center">
   <details>
-    <summary><u>gifdump</u></summary
+    <summary><u>EXPAND</u></summary
+    <br>
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/5/5c/Ace_Attorney_Series_Logo.png/revision/latest?cb=20210607075841" alt="Ace Attorney" width="200">
+    <img src="https://pbs.twimg.com/media/GP62aAOW0AA-NAv.png" alt="Gachiakuta" width="200">
+    <img src="https://upload.wikimedia.org/wikipedia/commons/f/f5/Danganronpa_series_English_logo.png?utm_source=commons.wikimedia.org&utm_campaign=index&utm_content=original" alt="Danganronpa (Canon)" width="200">
+    <img src="https://static.wikia.nocookie.net/fanganronpa/images/0/09/Super_Danganronpa_Another_2_-_Title_Screen.png/revision/latest?cb=20180802075953" alt="Super Danganronpa Another 2" width="200">
+    <img src="https://static.wikia.nocookie.net/logopedia/images/d/da/Dandy%27s_World_-_Logo_%282025%29.webp/revision/latest/scale-to-width-down/340?cb=20251008195507" alt="Dandy's World (Qwel supporters please piss off dude)" width="200">
+    <img src="https://static.tvtropes.org/pmwiki/pub/images/cdbe9aa22ebefccdc8c1adaa5944b1a2.jpg" alt="Len'en Project" width="200">
+    <img src="https://static0.cbrimages.com/wordpress/wp-content/uploads/2022/08/interview-zun-on-20-years-of-touhou-(1).jpg?w=1200&h=675&fit=crop" alt="Touhou Project" width="200">
+    <img src="https://upload.wikimedia.org/wikipedia/commons/5/56/Yttd_english_logo.png?utm_source=commons.wikimedia.org&utm_campaign=index&utm_content=original" alt="Your Turn to Die" width="200">
+    <img src="https://upload.wikimedia.org/wikipedia/commons/0/05/Project_Moon_Logo.webp?utm_source=commons.wikimedia.org&utm_campaign=index&utm_content=original" alt="" width="200">
+    <img src="https://images.castingcall.club/project_images/337888-isekaironpa-transcendent-desires.webp" alt="Isekaironpa: Transcendent Desires" width="200">
+    <img src="https://yt3.googleusercontent.com/gPX-MslWPsCUFGDt2Wxjila3HkgoLzdoZR3BIsAT1tsc72nv_Wvw8x6e0xqXgt_PQ3kSFHcK=s160-c-k-c0x00ffffff-no-rj" alt="Rogurt" width="200">
+    <img src="https://www.monikaafterstory.com/img/moonstne.png" alt="Monika After Story (DDLC)" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    
+  </details>
+</div>
+
+
+<p align="center">
+  <img src="https://file.garden/ZbUUWhRFzF89fVGT/ptgithub/TheGifPile.gif" width="200">
+</p>
+<div align="center">
+  <details>
+    <summary><u>EXPAND</u></summary
     <br>
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/mattdie.gif" width="200">
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/matt-engarde-ace-attorney.gif" width="200">
