@@ -28,6 +28,7 @@
     <img src="https://upload.wikimedia.org/wikipedia/commons/f/f5/Danganronpa_series_English_logo.png?utm_source=commons.wikimedia.org&utm_campaign=index&utm_content=original" alt="Danganronpa (Canon)" width="200">
     <img src="https://static.wikia.nocookie.net/fanganronpa/images/0/09/Super_Danganronpa_Another_2_-_Title_Screen.png/revision/latest?cb=20180802075953" alt="Super Danganronpa Another 2" width="200">
     <img src="https://static.wikia.nocookie.net/logopedia/images/d/da/Dandy%27s_World_-_Logo_%282025%29.webp/revision/latest/scale-to-width-down/340?cb=20251008195507" alt="Dandy's World (Qwel supporters please piss off dude)" width="200">
+    <p>DW Fandom is on thin ice. im just here for the flower and thats it</p>
     <img src="https://static.tvtropes.org/pmwiki/pub/images/cdbe9aa22ebefccdc8c1adaa5944b1a2.jpg" alt="Len'en Project" width="200">
     <img src="https://static0.cbrimages.com/wordpress/wp-content/uploads/2022/08/interview-zun-on-20-years-of-touhou-(1).jpg?w=1200&h=675&fit=crop" alt="Touhou Project" width="200">
     <img src="https://upload.wikimedia.org/wikipedia/commons/5/56/Yttd_english_logo.png?utm_source=commons.wikimedia.org&utm_campaign=index&utm_content=original" alt="Your Turn to Die" width="200">
