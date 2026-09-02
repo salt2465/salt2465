@@ -187,6 +187,36 @@
 </div>
 
 
+<p align="center">
+  <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/cooltext514661269596448%20(1).gif" width="300">
+</p>
+<div align="center">
+  <details>
+    <summary><u>EXPAND</u></summary
+    <br>
+    <a href="https://youtu.be/tWbLkXhGEmo">Ur So Gay</a> <br>
+    <a href="https://youtu.be/7Kn9gQTtn6M">We Don't Sleep At Night</a> <br>
+    <a href="https://youtu.be/soKG9DDv3_A">Don't Worry I'll Make You Worry</a> <br>
+    <a href="https://youtu.be/uGExj2Oq8IQ">Swine</a> <br>
+    <a href="https://youtu.be/dxOMZWIQ-LU">Girl, so confusing</a> <br>
+    <a href="https://youtu.be/BjGB9hc5huk">Your Best American Girl</a> <br>
+    <img src="https://i.pinimg.com/736x/b6/68/ac/b668ac4e5ddc715c41b023241dfada6a.jpg" width="200">
+    <img src="https://i.pinimg.com/736x/fb/f6/77/fbf677af240759322e77a875a125efb6.jpg" width="200">
+    <img src="https://i.pinimg.com/736x/c6/6d/6e/c66d6e4815269b96202a9b6fee385d72.jpg" width="200">
+    <img src="https://i.pinimg.com/736x/25/27/af/2527afc363d0d93e4b5154ce9df5c609.jpg" width="200">
+    <img src="https://i.pinimg.com/736x/d9/aa/09/d9aa094365d7518d288758178ea1014d.jpg" width="200">
+    <img src="https://i.pinimg.com/736x/77/98/96/7798966650604e37807ac4414e453f17.jpg" width="200">
+    <img src="https://i.pinimg.com/1200x/e7/b7/56/e7b756171aef6144c5fb558402fdfe0e.jpg" width="200">
+    <a href="https://www.pinterest.com/pin/853432198187878374/">
+  <img src="https://i.pinimg.com/736x/70/f5/25/70f52598fd5ee5a34d0cda5a8fd503c8.jpg" width="200">
+</a>
+    <a href="https://www.pinterest.com/pin/670825307041695587/">
+  <img src="https://i.pinimg.com/736x/80/25/01/802501275c2df3715553e6f1c977a495.jpg" width="200">
+</a>
+  </details>
+</div>
+
+
 <!--
 **salt2465/salt2465** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
