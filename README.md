@@ -15,7 +15,7 @@
 <hr>
 <p align="center">docks lurker 🍀 c+h you can cover‎ ‎ ‎ ‎ ‎ ‎  <a href="https://salt2465.atabook.org">新book</a> <a href="https://pronouns.cc/@salt2465">prns.cc</a> <a href="https://sugar24.straw.page">strawpage</a></p> 
 <p align="center">this HOE got ROACHES in her CRIB 😭😭😭😭😭😭😭😭😭</p>
-<p align="center">ace attorney currently on: 4-1</p>
+<p align="center">ace attorney currently on: 4-2</p>
 <p align="center">
   <img src="https://media1.tenor.com/m/nPvIrBY360IAAAAC/mattchard-ace-attorney.gif" width="150">
   <img src="https://media1.tenor.com/m/rP2Hqo_1fm0AAAAC/desiree-desiree-delite.gif" width="150">
