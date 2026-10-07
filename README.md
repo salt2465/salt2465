@@ -15,7 +15,10 @@
 <hr>
 <p align="center">docks lurker 🍀 c+h you can cover‎ ‎ ‎ ‎ ‎ ‎  <a href="https://salt2465.atabook.org">新book</a> <a href="https://pronouns.cc/@salt2465">prns.cc</a> <a href="https://sugar24.straw.page">strawpage</a></p> 
 <p align="center">this HOE got ROACHES in her CRIB 😭😭😭😭😭😭😭😭😭</p>
-<p align="center">ace attorney currently on: 4-2</p>
+<p align="center">
+    <img src="https://github-readme-steam-card.vercel.app/status/?steamid=76561199246946144&show_in_game_bg=true" />
+</p>
+<hr>
 <p align="center">
   <img src="https://media1.tenor.com/m/nPvIrBY360IAAAAC/mattchard-ace-attorney.gif" width="150">
   <img src="https://media1.tenor.com/m/rP2Hqo_1fm0AAAAC/desiree-desiree-delite.gif" width="150">
@@ -64,33 +67,34 @@
     <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
     <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
     <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
-    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
-    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
-    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
-    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
-    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
-    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
-    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
-    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
-    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
-    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
-    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
-    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
-    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
-    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
-    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
-    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
-    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
-    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
-    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
-    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
-    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
-    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
-    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
-    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
-    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
-    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
-    <img src="https://static.wikia.nocookie.net/aceattorney/images/1/10/Matt_Dialling_1.gif/revision/latest?cb=20120729213524" alt="Matt Engarde" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/0/0e/Alita_Thinking_3.gif/revision/latest?cb=20120916170202" alt="Alita Tiala" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/0/0e/Alita_Thinking_3.gif/revision/latest?cb=20120916170202" alt="Alita Tiala" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/0/0e/Alita_Thinking_3.gif/revision/latest?cb=20120916170202" alt="Alita Tiala" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/0/0e/Alita_Thinking_3.gif/revision/latest?cb=20120916170202" alt="Alita Tiala" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/0/0e/Alita_Thinking_3.gif/revision/latest?cb=20120916170202" alt="Alita Tiala" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/0/0e/Alita_Thinking_3.gif/revision/latest?cb=20120916170202" alt="Alita Tiala" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/0/0e/Alita_Thinking_3.gif/revision/latest?cb=20120916170202" alt="Alita Tiala" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/0/0e/Alita_Thinking_3.gif/revision/latest?cb=20120916170202" alt="Alita Tiala" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/0/0e/Alita_Thinking_3.gif/revision/latest?cb=20120916170202" alt="Alita Tiala" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/0/0e/Alita_Thinking_3.gif/revision/latest?cb=20120916170202" alt="Alita Tiala" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/0/0e/Alita_Thinking_3.gif/revision/latest?cb=20120916170202" alt="Alita Tiala" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/0/0e/Alita_Thinking_3.gif/revision/latest?cb=20120916170202" alt="Alita Tiala" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/0/0e/Alita_Thinking_3.gif/revision/latest?cb=20120916170202" alt="Alita Tiala" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/0/0e/Alita_Thinking_3.gif/revision/latest?cb=20120916170202" alt="Alita Tiala" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/0/0e/Alita_Thinking_3.gif/revision/latest?cb=20120916170202" alt="Alita Tiala" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/0/0e/Alita_Thinking_3.gif/revision/latest?cb=20120916170202" alt="Alita Tiala" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/0/0e/Alita_Thinking_3.gif/revision/latest?cb=20120916170202" alt="Alita Tiala" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/0/0e/Alita_Thinking_3.gif/revision/latest?cb=20120916170202" alt="Alita Tiala" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/0/0e/Alita_Thinking_3.gif/revision/latest?cb=20120916170202" alt="Alita Tiala" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/0/0e/Alita_Thinking_3.gif/revision/latest?cb=20120916170202" alt="Alita Tiala" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/0/0e/Alita_Thinking_3.gif/revision/latest?cb=20120916170202" alt="Alita Tiala" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/0/0e/Alita_Thinking_3.gif/revision/latest?cb=20120916170202" alt="Alita Tiala" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/0/0e/Alita_Thinking_3.gif/revision/latest?cb=20120916170202" alt="Alita Tiala" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/0/0e/Alita_Thinking_3.gif/revision/latest?cb=20120916170202" alt="Alita Tiala" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/0/0e/Alita_Thinking_3.gif/revision/latest?cb=20120916170202" alt="Alita Tiala" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/0/0e/Alita_Thinking_3.gif/revision/latest?cb=20120916170202" alt="Alita Tiala" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/0/0e/Alita_Thinking_3.gif/revision/latest?cb=20120916170202" alt="Alita Tiala" width="200">
+    <img src="https://static.wikia.nocookie.net/aceattorney/images/7/72/Wocky_Aggressive_3.gif/revision/latest?cb=20120912192643" alt="Alita Tiala" width="200">
     <img src="https://static.wikia.nocookie.net/aceattorney/images/3/37/Adrian_Thinking_2.gif/revision/latest?cb=20230325095821" alt="Adrian Andrews" width="200">
     <img src="https://static.wikia.nocookie.net/aceattorney/images/1/1f/Wellington_Sweating_2.gif/revision/latest?cb=20120901121840" alt="Richard Wellington" width="200">
     
@@ -110,6 +114,8 @@
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/adrian2" width="200">
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/ace-attorney-richard-wellington.gif" width="200">
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/adrian" width="200">
+    <img src="https://media1.tenor.com/m/IsrPLY8i4FMAAAAd/laced-this-shit-laced.gif" width="200">
+    <img src="https://media1.tenor.com/m/SpDg9VTonzcAAAAC/ace-attorney-picmix.gif" width="200">
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/peko-peko-pekoyama.gif" width="200">
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/black-friday-deals-man-richard-wellington.gif" width="200">
     <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/jpg-low-quality.gif" width="200">
