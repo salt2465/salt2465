@@ -14,7 +14,8 @@
 </p>
 <hr>
 <p align="center">docks lurker 🍀 c+h you can cover‎ ‎ ‎ ‎ ‎ ‎  <a href="https://salt2465.atabook.org">新book</a> <a href="https://pronouns.cc/@salt2465">prns.cc</a> <a href="https://sugar24.straw.page">strawpage</a></p> 
-<p align="center">this HOE got ROACHES in her CRIB 😭😭😭😭😭😭😭😭😭</p>
+<p align="center">this hoe got ROACHES in her crib</p>
+<p align="center">call me wocky kitaki the way im madly in love with alita tiala</p>
 <p align="center">
     <img src="https://github-readme-steam-card.vercel.app/status/?steamid=76561199246946144&show_in_game_bg=true" />
 </p>
