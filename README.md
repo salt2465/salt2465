@@ -19,6 +19,10 @@
 <p align="center">
     <img src="https://github-readme-steam-card.vercel.app/status/?steamid=76561199246946144&show_in_game_bg=true" />
 </p>
+<p align="center">
+  <img src="https://file.garden/ZbUUWhRFzF89fVGT/blinkies/alita-blink%20(1).gif">
+
+</p>
 <hr>
 <p align="center">
   <img src="https://media1.tenor.com/m/nPvIrBY360IAAAAC/mattchard-ace-attorney.gif" width="150">
