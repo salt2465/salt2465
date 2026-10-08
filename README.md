@@ -24,9 +24,12 @@
 
 </p>
 <hr>
+<p align="center">klapollo starrskye lanamia desiron mattchard liker. justitaki apollo/wocky thinker #NicheYaois. ME X ALITA</p>
 <p align="center">
   <img src="https://media1.tenor.com/m/nPvIrBY360IAAAAC/mattchard-ace-attorney.gif" width="150">
+  <img src="https://media1.tenor.com/m/-ZVSE-g4AcgAAAAC/ace-attorney-kristoph-gavin.gif" width="150">
   <img src="https://media1.tenor.com/m/rP2Hqo_1fm0AAAAC/desiree-desiree-delite.gif" width="150">
+  <img src="https://media1.tenor.com/m/ZObFS2nwCV4AAAAC/mia-fey-mia.gif" width="150">
   <img src="https://media1.tenor.com/m/yCbcpA-WwX8AAAAd/starrskye-ace-attorney.gif" width="150">
   <img src="https://file.garden/ZbUUWhRFzF89fVGT/ronloveyou.png" width="150">
 </p>
