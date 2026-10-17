@@ -42,7 +42,7 @@
 
 
 <hr>
-<p align="center">klapollo starrskye lanamia desiron mattchard liker. justitaki apollo/wocky thinker #NicheYaois. ME X ALITA. i am also a very big fan of machi & daryan duo.</p>
+<p align="center">klapollo starrskye lanamia desiron mattchard liker. justitaki apollo/wocky thinker #NicheYaois. ME X ALITA. i am also a very big fan of machi & daryan duo. please talk to me about any of these ships / duos i would LOVE TO</p>
 <p align="center">
   <img src="https://media1.tenor.com/m/nPvIrBY360IAAAAC/mattchard-ace-attorney.gif" width="150">
   <img src="https://media1.tenor.com/m/-ZVSE-g4AcgAAAAC/ace-attorney-kristoph-gavin.gif" width="150">
