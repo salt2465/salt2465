@@ -1,7 +1,7 @@
-<p align="center"><i>cutie hiroya by tingthething</i></p>
+<p align="center"><i>alitawocky by Hano_0107 on crepe</i></p>
 <p align="center">gif central. avert your eyes</i></p>
 <p align="center">
-  <img src="https://file.garden/ZbUUWhRFzF89fVGT/a/hiroyaedit.png" width="500">
+  <img src="https://file.garden/ZbUUWhRFzF89fVGT/%EC%BB%A4%EB%AF%B8%EC%85%98%20%EC%8B%A0%EC%B2%AD%20%EA%B0%90%EC%82%AC%EB%93%9C%EB%A6%BD%EB%8B%88%EB%8B%A42_202610202331364.png" width="700">
 </p>
 
 <p align="center">
