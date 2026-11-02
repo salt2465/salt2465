@@ -21,25 +21,6 @@
 <p align="center">
     <img src="https://github-readme-steam-card.vercel.app/status/?steamid=76561199246946144&show_in_game_bg=true" />
 </p>
-<div align="center">
-  <details>
-    <summary><u>blinkie</u></summary
-    <p align="center">
-  <img src="https://file.garden/ZbUUWhRFzF89fVGT/blinkies/alita-blink%20(1).gif">
-  <img src="https://64.media.tumblr.com/ec8e1405f55777fadb543015a92c4789/5732e589548c1c67-69/s250x400/67e379bf36ea8a95d9cc8db580a15c3a62da2670.gifv">
-  <img src="https://64.media.tumblr.com/32f74a487e521b22bf831241ac53dea4/0dfa27036609da25-53/s250x400/f5f4c411fe9f14b0c6a0a17a9eec3fe2eb21cf2b.webp">
-  <img src="https://64.media.tumblr.com/f9fb83d996c73eedf15d26a0ec9c0346/b83efe2cb32c8d99-a5/s250x400/3e552be5edbd372f72abe697fa619c648dd34298.gifv">
-  <img src="https://64.media.tumblr.com/a3e79c5108a14087a421ab3a9da054a0/37fc6184ca1ab1c4-7b/s250x400/713623cf571f611bf6faffe5a78138aa1a2aaf53.gifv">
-  <img src="https://64.media.tumblr.com/ce92888d7eda3606797986230dbe053c/9ed44c07306bd995-7c/s250x400/8e63533e32ea11f0d9fa226e712b4a602c75600e.gifv">
-  <img src="https://64.media.tumblr.com/9e087b142079b7cce4a17974c46085f3/6c847a1b8fc7c2a4-51/s250x400/908fcd6e99525508e0ba7c679ab63f562029e02a.gifv">
-  <img src="https://64.media.tumblr.com/885184e881816f4cf2b71f08b571b9f5/c20d8def3a1d572f-86/s250x400/76401499f6100e5c685dce0147f2bca2cfc8121a.webp">
-  <img src="https://file.garden/ZbUUWhRFzF89fVGT/blinkiesss/ilovehim">
-  <img src="https://64.media.tumblr.com/a0378062e1aa8dcbb375e646964918ab/95328f8dbf5e2054-ef/s640x960/27eac99f1aecb4e041bd37be11be5d985dc745eb.gifv" width="150">
-
-</p>
-  </details>
-</div>
-
 
 <hr>
 <p align="center">klapollo starrskye lanamia desiron mattchard liker. justitaki apollo/wocky thinker #NicheYaois. ME X ALITA. i am also a very big fan of machi & daryan duo. please talk to me about any of these ships / duos i would LOVE TO</p>
@@ -54,6 +35,43 @@
   <img src="https://media1.tenor.com/m/yCbcpA-WwX8AAAAd/starrskye-ace-attorney.gif" width="150">
   <img src="https://file.garden/ZbUUWhRFzF89fVGT/ronloveyou.png" width="150">
 </p>
+
+
+
+</div>
+
+<p align="center">
+  <img src="https://file.garden/ZbUUWhRFzF89fVGT/awardacc.gif" width="300">
+</p>
+<div align="center">
+  <details>
+    <summary><u>EXPAND</u></summary
+    <br>
+    <div align="center">
+<table>
+  <tr>
+    <td>
+      <table>
+        <tr>
+          <th>thank you ponytown award accounts lol </th>
+          <th>-----</th>
+        </tr>
+        <tr>
+          <td><a href="https://github.com/THENUMBERONESHIPPER">@THENUMBERONESHIPPER</a></td>
+          <td>number one justitaki shipper</td>
+        </tr>
+        <tr>
+      </table>
+    </td>
+    <td>
+      <img src="https://file.garden/ZbUUWhRFzF89fVGT/1792944141448.png" width="350">
+      <p><i>alita & machi by jeyugmali on crepe</i></p>
+    </td>
+  </tr>
+</table>
+  </details>
+</div>
+
 
 
 <p align="center">
@@ -132,7 +150,6 @@
     
   </details>
 </div>
-
 
 <p align="center">
   <img src="https://file.garden/ZbUUWhRFzF89fVGT/ptgithub/TheGifPile.gif" width="200">
