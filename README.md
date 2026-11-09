@@ -64,8 +64,8 @@
       </table>
     </td>
     <td>
-      <img src="https://file.garden/ZbUUWhRFzF89fVGT/1792944141448.png" width="350">
-      <p><i>alita & machi by jeyugmali on crepe</i></p>
+      <img src="https://file.garden/ZbUUWhRFzF89fVGT/uglylittlebebehs" width="350">
+      <p><i>apollo/wocky by MrXQcoUo on crepe</i></p>
     </td>
   </tr>
 </table>
