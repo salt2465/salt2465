@@ -61,6 +61,10 @@
           <td>number one justitaki shipper</td>
         </tr>
         <tr>
+          <td><a href="https://github.com/herebyguilty-pt">@herebyguilty-pt</a></td>
+          <td>being an awesome account mod <br> being too obsessed with underrated characters</td>
+        </tr>
+        <tr>
       </table>
     </td>
     <td>
